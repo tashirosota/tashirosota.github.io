@@ -1,1 +1,0 @@
-# tashirosota.github.io
